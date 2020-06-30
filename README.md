@@ -1,2 +1,2 @@
-# porfolio
-Portfolio Claudia Ziemba
+# Portfolio Claudia Ziemba
+
